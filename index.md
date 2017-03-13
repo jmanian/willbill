@@ -21,14 +21,14 @@ title: Corporate Tax Loopholes
  * Copy and paste the above text, or write whatever you feel.
 
 
-### Get Your Friends In On The Game
+### Get Your Friends in on the Game
 Share this link on social media, and email it to your people. No explanation necessary. But here's some sample text you might use:
 
 * Twitter: Tell our state legislators to stop letting big corporations steal our tax dollars! www.willguzzardi.com/loopholes
 * Facebook: Illinois is in a massive budget crisis. Instead of cutting services to people in need, or raising taxes on everyone, how about closing $1 billion in loopholes that let big corporations game the system? Those dollars belong to us. Let's take them back. www.willguzzardi.com/loopholes
 
 
-### Donate To The Bill's Sponsors
+### Donate to the Bill's Sponsors
 Big corporate lobbyists are going to fight hard against this bill. Support the people who have the courage to stand up to them.
 
 1. [Click here](http://ilga.gov/legislation/billstatus.asp?DocNum=4004&GAID=14&GA=100&DocTypeID=HB&LegID=106319&SessionID=91) to see the list of bill sponsors.
@@ -36,5 +36,5 @@ Big corporate lobbyists are going to fight hard against this bill. Support the p
 3. Give $1, $5, $10, or whatever you can. And leave a note telling them you're grateful for their support for HB4004.
 
 
-### Sign Up For Email Updates
+### Sign Up for Email Updates
 State Rep. Will Guzzardi is the bill's sponsor, and he'll keep you up to date about the progress of HB4004 as well as other important progressive legislation in Springfield. Visit www.willguzzardi.com, and in the "Participate" box, enter your email address and click "Join Us!"
